@@ -1,0 +1,10 @@
+- giovanna
+-tenho 15 anos
+-meu signo sargitario
+- namoro
+- moro em jaguariaiva
+- gosto de comer
+- amo tiktok
+- gosto de animais
+- nao gosto de estuda
+- amo de bater no meu namorado 
